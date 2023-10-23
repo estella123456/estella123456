@@ -1,10 +1,15 @@
-- 👋 Hi, I’m @estella123456
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+# meu titulo rsrs
 
-<!---
-estella123456/estella123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+sou estudnte do cap, tenho 15 anos e amo gays trambiqueiras kises!!!!!!!!
+
+![Alt](https://github.com/estella123456/estella123456/assets/137802631/3e1082fd-e8aa-497b-ade0-b2d384eae186)
+
+AMO A WANDA VEYR!!!!!!!!!!!
+
+![Alt](https://github.com/estella123456/estella123456/assets/137802631/d8396dcb-00f4-4078-bb4b-d6b4ed044926)
+
+![Alt](https://github.com/estella123456/estella123456/assets/137802631/2755e77c-e5fb-4bdb-a9fc-72b43635eb57)
+
+Wanda lenda, resto nadinha!!!!!!!!!!!!!1
+
+kises,old.
