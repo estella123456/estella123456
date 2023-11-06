@@ -1,6 +1,6 @@
 # meu titulo rsrs
 
-sou estudnte do cap, tenho 15 anos e amo gays trambiqueiras kises!!!!!!!!
+sou estudnte do cap, tenho 15 anos, kises!!!!!!!!
 
 ![Alt](https://github.com/estella123456/estella123456/assets/137802631/3e1082fd-e8aa-497b-ade0-b2d384eae186)
 
